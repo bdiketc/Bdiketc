@@ -1,5 +1,5 @@
-Discord Logo Discord - 
+Discord - RmK#8939
 
-Youtube Logo Youtube - 
+Youtube - https://www.youtube.com/channel/UCzkpdOe_o0BeSn0XZ2FkaXw
 
-Steam Logo Steam - id/
+Steam - id/cliffnote
